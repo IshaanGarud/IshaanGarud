@@ -7,6 +7,7 @@
 
 - 📫 How to reach me : you can email me on ishaang30@gmail.com or on instagram: ishaan_garud3097.
 
+- 🎂 I would be very happy if you wish me on 30th September.
 <!---
 IshaanGarud/IshaanGarud is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
